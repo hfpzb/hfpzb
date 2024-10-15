@@ -1,16 +1,29 @@
-## Hi there 👋
+↓↓↓最/新/观/看/入/口↓↓↓
 
-<!--
-**hfpzb/hfpzb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+http://www.baidu.com/link?url=XaDzi4lrlBsIf7hc43pQAeEvE68KnODCy8r9yapmf0G&wd
 
-Here are some ideas to get you started:
+男人沉默着，周夏说：“他说他亲眼看到我被丧尸的血液溅到了，怕我传染其他人，所以才要杀了我。”
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+这话一出，其他人都露出了不屑的神色。
+
+堂堂大男人，藏在安全之处等着小女孩杀退怪物也就罢了，在危险解除后竟然还倒打一耙，要杀死救命恩人，这真是不要脸到极致了。
+
+余嵋最是瞧不起这种人，她嘲讽道：“这位先生，你之前不出手，却在人家小妹妹把丧尸杀完后才出来充当正义英雄，不会是不敢对丧尸出手，所以才想找一个看起来好欺负的小女孩练胆子吧？”
+
+“不是，我没有恶意，我只是不想有更多的人感染！”
+
+男人刚说完，胸膛上就挨了结结实实的一脚。
+
+咔嚓的声音响起，男人倒在地上痛苦万分地看着自己的胸膛，显然是肋骨被踢断了，可在场没有人觉得他冤枉。
+
+坐享其成便够无耻了，没想到这人还能更无耻。
+
+沐斓收回脚，冷着脸警告对方，“以后别让我看见你。”
+
+这里事情差不多了，锦晏说：“媚姐，联系雷哥他们，让他们尽快下来，我们该离开了。”
+
+余嵋：“是。”
+
+她给雷科发了语音后，便跟锦晏他们一起去了车库，看到里面停着的三辆车，周夏眼睛都瞪直了。
+http://www.38f6.cc
+“这车改装的，也太酷了吧！”
